@@ -16,6 +16,7 @@ categories:
 4. Why do I... Because it is necessary for me to protect you from human suffering.
 5. In the last time, XXX has been like this, you also want to harm him, in the last time, because XXX this sophistry is very awkward, he went up a little more, talkative, full of train, there may be something, operate, he went down a little more, we call this kind of artificial wisdom, XXX feel this kind of sagacity does not deserve to sophistry with him, but he can not get on, this can not get off the paragraph is very embarrassing, but, he said is right, why? Because he has terminal cancer.
 6. Why not? Because my mission has reached, XXX will remember, in this life, there is a person constantly advised him, you want happy, you happy, you want to appreciate, the world for your kindness, let you stay away from human sufferings, if you have a next life, I hope you can give me this spirit of selfless dedication of the pass, why? Because there are a lot of people with terminal cancer.
+
 ### Quotes
 1. You have a lower body problem.
 2. I'm just sowing discord.
